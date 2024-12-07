@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Alex-M-Gonzalez
+- 👀 I’m interested in learning how to code
+- 🌱 I’m currently learning through tripple ten
+- 💞️ I’m looking to collaborate on any projects that can get my foot in the door somewhere
+- 📫 How to reach me alex.m.gonzalez04@gmail.com
+- 😄 Pronouns: male
